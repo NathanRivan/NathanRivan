@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi! I'm Clement. I like working on QoL systems and creating apps that help people!
+Hi! I'm Clement. I like working on fun projects and creating apps that help people!
 
 
 ## 🌐 Socials:
